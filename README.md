@@ -1,10 +1,10 @@
 # 504_6-Project
 
-504호 6조 프로젝트
+504호 6조 프로젝트 :smiley:
 
-참여자
+:star:참여자:star:
 
-한성은 - HanSeongEun
+:crown:한성은 - HanSeongEun
 
 이유진 - 2uuuz
 
